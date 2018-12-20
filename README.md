@@ -1,2 +1,2 @@
 # lowongan-kerja-muslim
-Info Lowongan Kera Untuk Kaum Muslimin
+Info Lowongan Kerja Untuk Kaum Muslimin
